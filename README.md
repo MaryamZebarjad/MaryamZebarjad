@@ -1,3 +1,3 @@
 ## مریم زبرجد هستم برنامه نویس پایتون 👋
-<img src=https://user-images.githubusercontent.com/57192512/134780110-04530adc-28a0-4dc0-a68d-572ca03195a3.gif>
+<img src=https://user-images.githubusercontent.com/115386517/225841791-e6eb2fcf-6de1-45ec-a5e8-0c321f0af245.gif>
 
