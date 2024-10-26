@@ -12,3 +12,4 @@
 ## موبایل    📱   : 09122184363
 <a href="https://t.me/MaryamZebarjad"><img src="https://github.com/MaryamZebarjad/MaryamZebarjad/blob/main/image/telegram.png"></a> <a href="https://t.me/MaryamZebarjad"><img src="https://github.com/MaryamZebarjad/MaryamZebarjad/blob/main/image/whatsapp.png"></a>
 
+## در حال حاض اینا رو دارم یاد میگیرم 📚 :
