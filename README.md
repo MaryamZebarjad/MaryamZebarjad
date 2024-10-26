@@ -14,5 +14,5 @@
 
 ### در حال حاضر اینا رو دارم یاد میگیرم 📚 :
 Git & GitHub | 30 %
-<img src="">
+<img src="https://github.com/MaryamZebarjad/MaryamZebarjad/blob/main/image/bar40.png">
 
